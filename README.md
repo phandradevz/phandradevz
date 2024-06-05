@@ -10,4 +10,5 @@ Meu nome é Pedro Andrade
 
 phandradevz@gmail.com
 
-![](https://tenor.com/pt-BR/view/bone-zone-the-bone-zone-kirby-waddle-dee-nerd-gif-25264599)
+![](https://media1.tenor.com/m/Lj3UcNyIPAkAAAAd/bone-zone-the-bone-zone.gif
+)
